@@ -1,5 +1,5 @@
 #### Hi there 👋 my name is [Tatiana Anor](https://www.linkedin.com/in/tatiana-anor/), I'm QA Engineer ✨
-![image](https://user-images.githubusercontent.com/118332660/204694043-47bb629b-7102-49a7-8308-ada220619f74.png)
+![image](https://media.licdn.com/dms/image/D5616AQE-5XCFU83U2A/profile-displaybackgroundimage-shrink_350_1400/0/1699119033541?e=1706745600&v=beta&t=k-z-Zd34ruO6boCBpBH-usD5e2T7hk8VFICWjndoOPk)
 
 - Junior Software QA Tester with 3+ years in Quality Assurance and Software Testing
 
@@ -18,6 +18,7 @@
 - I have a strong sense of composition, great drawing and photography skills
 
 - Proficient in Adobe Creative Suite, Corel Draw and Procreate App
+
 
 
 
