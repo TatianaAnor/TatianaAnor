@@ -9,6 +9,16 @@
 
 - Basic knowledge of automation testing tools
 
-- Passionate about games
+- Passionate about video games
 
 - I have knowledge of different game genres, consoles, and platforms
+
+- Creative and skilled illustrator who is super passionate about art
+
+- I have a strong sense of composition, great drawing and photography skills
+
+- Proficient in Adobe Creative Suite, Corel Draw and Procreate App
+
+
+
+
