@@ -19,6 +19,8 @@
 
 - Proficient in Adobe Creative Suite, Corel Draw and Procreate App
 
+- I have a bachelor's degree in Graphic Design
+
 
 
 
